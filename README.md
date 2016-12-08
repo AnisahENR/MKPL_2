@@ -2,3 +2,4 @@
 hallo denis
 ngajarin meita
 ngantuk
+pengen mie setan.
